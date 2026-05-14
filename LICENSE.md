@@ -1,4 +1,4 @@
-
+Enhance your PureVPN experience with ultimate PureVPN Connector | obfuscation + static-IP, the #1 connector. Includes obfuscation and static-IP for a safer and more private online
 
 
 
